@@ -1,3 +1,1 @@
-UNIVERSAL SIGN SYSTEM
-
-IMAGE RANK
+A kind of large alphabet
